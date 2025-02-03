@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Hi , I am Aadarsan Dahal <br>a leader , a learner , a changemaker
 
 
